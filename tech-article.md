@@ -1,0 +1,1 @@
+Technology has aided in the evolution of the modern world and how we imagine it. The technological innovations have made the lives of human beings convenient, easy and better than what it was yesterday. It has made possible for people to connect from all over the world through smart phones, emails, video calls, etc.
